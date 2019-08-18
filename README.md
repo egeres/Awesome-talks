@@ -15,6 +15,16 @@ https://www.youtube.com/watch?v=z2UHLMVr4vg
 #### The Raven Paradox - A Hiccup in the Scientific Method
 https://www.youtube.com/watch?v=Ca_sxDTPo60
 
+#### Why Trust Is Worth It
+https://www.youtube.com/watch?v=cWypWe9UAhQ
+
+#### DOUBLE KING
+https://www.youtube.com/watch?v=w_MSFkZHNi4
+
+#### Upsilon Dies Backwards
+https://www.youtube.com/watch?v=B01HWsilRqs&t=185s
+
+
 
 
 
@@ -28,6 +38,7 @@ https://www.youtube.com/watch?v=yUX78sGDzxQ
 
 #### [ES] Lynx Contesta #41 | 3/3 | Avanzando proyectos SIN horarios
 https://www.youtube.com/watch?v=VtwbwJjwvnc
+
 
 
 
@@ -51,6 +62,7 @@ https://www.youtube.com/watch?v=oTlJnyF3REs
 
 #### HOW to get more quality sleep | (Science of Sleep Pt 2)
 https://www.youtube.com/watch?v=q9q3hfsPYpM
+
 
 
 
